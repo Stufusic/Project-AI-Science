@@ -1,0 +1,1 @@
+Leak ra ngoài = kick
